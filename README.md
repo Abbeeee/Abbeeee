@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Abbeeee
 - 👀 I’m interested in web development, UI/UX and design
-- 🌱 I’m currently all sorts of things
+- 🌱 I’m currently learning all sorts of things
